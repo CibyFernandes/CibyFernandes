@@ -1,0 +1,6 @@
+- 👋 Ola, meu nome e Ciby Fernandes
+- 👀 Estou interessada em conhecer o mundo inteiro 
+- 🌱 Atualmente estou fazendo um curso de programação 
+- 💞️ Quero ser pediatra
+- 📫 Eu moro no interior da Lapa/Parana, mas ja morei em Curitiba
+- 
